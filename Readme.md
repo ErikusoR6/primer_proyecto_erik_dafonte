@@ -1,0 +1,1 @@
+La historia de Dragon Ball se centra en un niño alienígena llamado Goku que es enviado a la Tierra. Tiene características especiales como una cola de mono y potencial para las artes marciales. Conoce a Bulma y le acompaña a buscar las bolas de Dragón, un artefacto mágico capaz de conceder deseos.
